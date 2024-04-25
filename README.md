@@ -1,4 +1,4 @@
-### Olá a todos, bem vindo ao meu perfil!🌌💙
+### Olá a todos, bem vindos ao meu perfil!🌌💙
 Meu nome é Jamilly Lima 
 
 - Sou estudante do José Feliciano
